@@ -1,0 +1,1 @@
+# Joylashtirilgan-to-plamlar-1-lug-at-
